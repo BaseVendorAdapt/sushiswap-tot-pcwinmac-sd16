@@ -1,4 +1,4 @@
-# 
+# Best sushiswap trading bot templates for Mac OS | Exclusive sushiswap trading bot templates for PC Windows. Featuring backtesting engine and sandwich attack detection — optimized for maximum performance on every platform.
 
 
 
